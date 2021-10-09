@@ -1,1 +1,1 @@
-# boredbox.github.io
+# jerico.github.io
